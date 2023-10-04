@@ -1,2 +1,2 @@
-# I
-سلام  به شما کاربران عزیز ابزار هامر یکی از قدرت کندترین تبار های برای دیداس در ترموکس می‌باشید  برای اجرا روی کد های زیر کلیک کنید 
+# hamer
+Hello dear users our GitHub is under construction and will soon share the best hacking tools for hacking security please subscribe to use the GitHub in our WhatsApp channel 
